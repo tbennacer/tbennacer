@@ -15,7 +15,7 @@ Here's a little bit about me:
 
 - 📫 You can connect with me through Gmail 📧 or LinkedIn. My DMs are open, so don't hesitate to reach out.
 
-- ⚡ Fun fact: I've been playing the piano for 12 years, and I'm currently exploring the world of DJing (DJ), blending my passion for music in new and exciting ways. 🎹🎧
+- ⚡ Fun fact: I played piano for 12 years, now I'm currently exploring the world of DJing, mixing my passion for music in new and exciting ways. 🎹🎧
 
 ## Main Languages and Tools 💻🧰: 
 
